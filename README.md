@@ -1,0 +1,5 @@
+- Hi, I’m Cindy
+- 👀 I’m interested in English and sale shoes
+- 🌱 I’m currently learning English and how to get shoe orders
+- 💞️ I’m looking to collaborate on shoes buyers. 
+- 📫 My email address:Cindy@shengpingshoes.com.
